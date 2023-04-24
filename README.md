@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @abhinash-07
 - 👀 I’m interested in CP,Android dev, 
 - 🌱 I’m currently a undergrad .
-- 💞️ I'm looking for a partner...
+- 
 - 📫 How to reach me _  insta [@abhinash_hi] 
 Linked in (Abhinash Samal)
 
